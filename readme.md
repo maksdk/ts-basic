@@ -1,0 +1,1 @@
+[TS tutorial for begginrs](https://www.youtube.com/watch?v=nyIpDs2DJ_c&list=PLqKQF2ojwm3lrzkYrqnxh6qywB99dCyCt&index=2&t=0s)
